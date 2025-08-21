@@ -1,6 +1,6 @@
 # Welcome to AdonisTechs LLC
 
-"Your Success, Our Passion — Web & Marketing"
+"Your Success, Our Passion, Web & Marketing"
 
 At AdonisTechs LLC, we deliver innovative digital solutions that drive real business results. With over 5 years of experience, 100+ satisfied clients, and 200+ online reviews, we’ve become a trusted, Houston-based technology partner.
 
